@@ -1,5 +1,5 @@
-# quick shares
+# quick shares for private use #
 
-Temporary links:
-S-123-26 Hvem skal redde jorden?
-https://1drv.ms/u/c/7c630a624df94d71/IQAySrYDuP5lQreXwR0P1s2wATV1byRZ1KKy3sj8m593IBs?e=bhKSoY
+############
+https://1drv.ms/f/c/7c630a624df94d71/IgDNGcesaxQGRbje_4xeIwWjAU15Oaq56SaaKc5dlrXc3os?e=etsutW
+############
